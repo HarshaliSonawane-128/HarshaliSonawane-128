@@ -1,0 +1,1 @@
+Danny wanted to expand his new Pizza Empire and intended to Uberize it with Pizza Runner. Danny started by recruiting “runners” to deliver fresh pizza from Pizza Runner Headquarters (otherwise known as Danny’s house) and also maxed out his credit card to pay freelance developers to build a mobile app to accept orders from customers.
